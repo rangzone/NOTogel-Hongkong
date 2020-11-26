@@ -12,3 +12,5 @@ New Version*
 - Added Ads
 
 ![TOGEL 4D](https://i.ibb.co/b7Gv58B/Prediksi-Togel-Hongkong-Terampuh-terbaik-terbaru-paling-jitu.jpg)
+
+![DOWNLOAD](https://drive.google.com/uc?export=download&id=1vCU2FHXnT9CrIn4SoDjSlPrgaAncMQCw)
