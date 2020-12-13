@@ -5,7 +5,7 @@ Rumus dan prediksi togel Hongkong (HK) ini hanya sebagai patokan saja, kami tida
 
 Bocoran nomor togel Hongkong (HK) akan update otomatis setiap hari nya, dan sekali lagi.. bocoran togel SG singapore ini tidak menjamin akurat, aplikasi hanya membantu anda dalam proses pengambilan keputusan untuk memasang nomer togel Hongkong (HK).
 
-Fitur NOtogel SG:
+Fitur NOtogel HK:
 - Update Data Keluaran Togel Hongkong Terbaru & Tercepat
 - Prediksi dari pakar Togel Hongkong
 - Tabel Shio Togel Terbaru
