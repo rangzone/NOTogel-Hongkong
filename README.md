@@ -1,4 +1,4 @@
-# aplikasi rumus prediksi togel Hongkong APK Android app
+# aplikasi Rumus Prediksi jitu togel Hongkong apk android app
 aplikasi Rumus dan Prediksi jitu togel Hongkong (HK) generator untuk perhitungan nomor togel Hongkong pool (HK) yang akan keluar. sangat sederhana dan praktis. Anda cukup memasukan nomor di tempat yang telah disediakan dan aplikasi secara otomatis menghitung berdasar input-an anda.
 
 Rumus dan prediksi togel Hongkong (HK) ini hanya sebagai patokan saja, kami tidak memberikan jaminan jackpot untuk nomor togel singapore (SG) yang keluar.
