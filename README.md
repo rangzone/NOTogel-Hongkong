@@ -10,6 +10,4 @@ Fitur NOtogel HK:
 - Prediksi dari pakar Togel Hongkong
 - Tabel Shio Togel Terbaru
 
-![TOGEL 4D](https://i.ibb.co/b7Gv58B/Prediksi-Togel-Hongkong-Terampuh-terbaik-terbaru-paling-jitu.jpg)
-
 <a href="https://play.google.com/store/apps/details?id=sdbw.prediksitogel.app" target="_blank"><img alt="Download aplikasi rumus prediksi togel Hongkong APK Android app" src="https://i.ibb.co/nnQBHcj/google-play-badge.png" width="323" height="125"></a>
